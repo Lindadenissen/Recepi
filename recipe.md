@@ -8,11 +8,11 @@ Video instructions [making the biscuit cake](https://thehappypear.ie/recipes/cho
 
 **INGREDIENTS**
  
-*200 g rich tea or digestive biscuits vegan  
-*200 g dark chocolate  
-*100 g coconut oil  
-*100 g maple syrup  
-*50 g walnuts/ goji berries  
+* 200 g rich tea or digestive biscuits vegan  
+* 200 g dark chocolate  
+* 100 g coconut oil  
+* 100 g maple syrup  
+* 50 g walnuts/ goji berries  
 
 **INSTRUCTIONS**
  
