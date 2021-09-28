@@ -1,12 +1,12 @@
-![biscuit cake](https://thehappypear.ie/wp-content/uploads/2021/07/4AA6E0E9-E817-494B-989F-82116BC7C5A7-1-200x200.jpg)
+![biscuit cake](https://thehappypear.ie/wp-content/uploads/2021/07/4AA6E0E9-E817-494B-989F-82116BC7C5A7-1-2048x2048.jpg)
 
-#**Chocolate biscuit cake 5 ingredients**
+**#Chocolate biscuit cake 5 ingredients**
 One of our childhood favourites! We have fond memories at a cousin’s wedding hiding under the table scoffing our faces with chocolate biscuit cake! 
 This is an wonderfully indulgent cake which always satisfies the most chocolatey of itches! This is a simple recipe and to most it is a total crowd pleaser!
 
 Video instructions [making the biscuit cake](https://thehappypear.ie/recipes/chocolate-biscuit-cake-with-5-ingredients/#recipe-video)
 
-##**INGREDIENTS**
+**##INGREDIENTS**
  
 *200 g rich tea or digestive biscuits vegan  
 *200 g dark chocolate  
@@ -14,7 +14,7 @@ Video instructions [making the biscuit cake](https://thehappypear.ie/recipes/cho
 *100 g maple syrup  
 *50 g walnuts/ goji berries  
 
-##**INSTRUCTIONS**
+**##INSTRUCTIONS**
  
 1. Put the dark chocolate in a bain-marie together with the coconut oil and melt. 
    Once melted, remove from the heat, add the maple syrup in and mix well. Leave this bowl on the bain marie to keep it liquid.
